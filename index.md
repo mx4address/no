@@ -4,7 +4,7 @@ yep probably will be
 
 ### why can't i run angel's site?!?!?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+angel sussy
 
 ```markdown
 angel srsly
