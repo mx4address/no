@@ -18,4 +18,4 @@ technically boomy098.tk is expiring soon and idk what to say but ehh
 
 ### what is angel gonna do now
 
-nothing just fuck up my site prob
+nothing just fuck up my site prob (which he did)
