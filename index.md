@@ -10,7 +10,7 @@ no
 no
 ```
 
-if only it was that 
+no
 
 ### no
 
