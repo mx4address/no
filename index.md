@@ -1,21 +1,21 @@
-## new boomy098 page?
+## no
 
-yep probably will be
+no
 
-### why can't i run angel's site?!?!?
+### no
 
-angel sussy
+no
 
 ```markdown
-angel srsly
+no
 ```
 
 if only it was that 
 
-### end of old website?
+### no
 
-technically boomy098.tk is expiring soon and idk what to say but ehh
+no
 
-### what is angel gonna do now
+### no
 
-nothing just fuck up my site prob (which he did)
+no
